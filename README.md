@@ -8,5 +8,4 @@ We need a plan to improve air conditioning.
 
 Let's buy some air-cons on Amazon!
 
-I hope they are cheap.
-
+Hopefully they're not very expensive.
